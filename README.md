@@ -1,3 +1,3 @@
 # Principal
 
-lo dejare en blanco por ahora
+Lo Dejare en Blonco por que no Tengo idea de que escribir en esta parte
